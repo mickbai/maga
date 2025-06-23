@@ -1,5 +1,4 @@
 # 秒开代理软件
-食用方法：
-1.注册账号
+代理下载地址：
+https://wwmo.lanzouq.com/iDeRW2zehrta
 
-2.登陆软件
